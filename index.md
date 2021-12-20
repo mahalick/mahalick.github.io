@@ -23,4 +23,43 @@
 
 # HOW IT STARTED
 
-!
+![](/images/EX2.jpg)
+
+![](/images/IN.jpg)
+
+![](images/PE.jpg)
+
+![](images/RE2RR.jpg)
+
+![](/images/SS2.jpg)
+
+# AFTER COMMITING SEVERAL TIMES
+
+![](/images/SWAGSD.jpg)
+
+# INTROSPECTION
+
+![](/images/RE.jpg)
+
+# SESSION 2 STARTED
+
+# PARTH AT IT'S PEAK
+
+![](/images/fast.jpg)
+
+![](/images/TT3.jpg)
+
+![](/images/SURS.jpg)
+
+## LATER THAT DAY
+
+![](/images/confus.jpg)
+
+# AFTER REVISITING SESSION REALIZING PROFILE SETTING AND REPOSITORY SETTING
+
+![](/images/SETTING.jpg)
+
+# ATLAST FOUND MY WEBSITE
+![](/images/3opecq.png)
+
+![](/images/THANK YOU.jpg)
